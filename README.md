@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on File Wizard project<br>👯 I’m looking to collaborate on Web projects<br>🌱 I’m currently learning AI/ML <br>💬 Ask me about anything
+🔭 I’m currently working on Axionx project<br>👯 I’m looking to collaborate on Web projects<br>🌱 I’m currently learning AI/ML <br>💬 Ask me about anything
 
 
 ## 🌐 Socials:
